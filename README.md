@@ -1,2 +1,2 @@
 # LearnJava
-Good Good Study Day Day Up！
+难顶
